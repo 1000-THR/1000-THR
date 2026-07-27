@@ -1,6 +1,6 @@
 ![image](https://i.imgur.com/V5v6xCn.gif)
 
-hi how do ppl do tis umm basic DNI + dni if you like roblox args or the Thatmob thing, you guys r obnoxiously annoying.
+hi how do ppl do tis umm basic DNI + dni if you like roblox args or the Thatmob thing, im uncomfortable with both
 
 im 16 dont be weird around me auugh
 
