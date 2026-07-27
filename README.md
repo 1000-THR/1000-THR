@@ -1,4 +1,4 @@
-![image](https://i.imgur.com/KarF7xF.gif) ![image](https://i.imgur.com/S2UO8gJ.gif)
+![image](https://i.imgur.com/V5v6xCn.gif)
 
 hi how do ppl do tis umm basic DNI + dni if you like roblox args or the Thatmob thing, you guys r obnoxiously annoying.
 
